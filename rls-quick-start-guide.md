@@ -2,7 +2,7 @@
 
 Hello, RLS members new and old! Welcome to the Rands Leadership Slack quick-start guide 🙂 
 
-RLS is a big community! As of January 2023, RLS membership was the same size as Neehah, Wisconsin with 25,694 people. As RLS continues to grow, it can be harder to figure out where to get started. This quick-start guide is intended to give you that starting point to exploring and participating in this community. 
+RLS is a big community! As of November 2024, RLS membership was the same size as Sedona, Arozona with 34,401 people. As RLS continues to grow, it can be harder to figure out where to get started. This quick-start guide is intended to give you that starting point to exploring and participating in this community. 
 
 And please be assured that we do want you - _yes, you!_ - to participate. You are not too junior, or too new, or not leader-y enough to contribute. Our community benefits from being able to discuss and learn from all of our perspectives and experiences, and it's one of the great things about being in RLS.
 
